@@ -6,6 +6,5 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-<!---
-Moj pierwszy wpis ;)
---->
+- 🍀DON'T LOSE HOPE.
+you never know what tomorrow will bring
