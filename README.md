@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @marcingwara
 - 🎶 https://on.soundcloud.com/5VS8tvdMutfuTUgc7
-- 👀 I’m interested in IT
+- 👀 I’m interested in IT and Music 
 - 🌱 I’m currently learning Software Testing at Coders Lab
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
